@@ -1,2 +1,3 @@
-website owner sheesh
-vvxdev#0003
+sup kids
+
+vscc > github ngl
